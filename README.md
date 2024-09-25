@@ -1,5 +1,4 @@
 ## BEM VINDO 🫀🌔
 
-![](https://i.pinimg.com/originals/57/61/5b/57615b8c0092a66c1d4058b1692955cc.gif)
-![](https://image.myanimelist.net/ui/BQM6jEZ-UJLgGUuvrNkYUCG8p-X1WhZLiR4h-oxkqQehxzau6Ew70-Ke7cOhkF14xRIPJEuoqOYrafKp-9s1hA)
-![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcS1DHvGixUYAJGhlKRPWmAEk7q9ojHw6ibxbQ&s)
+
+![](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExOTR6cHVjMG43Y3FjaWRnM2llcGU0MXI2ZGN2dWplaXRzYmE5OHNpYSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/xT39D16Uj3x2G4H01q/200w.webp)
